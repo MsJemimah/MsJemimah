@@ -25,4 +25,4 @@ I am continuously strengthening my skills in **data analytics, statistical analy
 
 To use data, technology, and analytical thinking to solve problems, improve programme performance, and support evidence-based decision-making.
 
-📫 **Connect with me:** [LinkedIn](www.linkedin.com/in/jemimah-ngenga-771a69279)
+📫 **Connect with me:** [LinkedIn]www.linkedin.com/in/jemimah-ngenga-771a69279
